@@ -1,7 +1,7 @@
 # Fluence-Swag-Art
 
 
-Judges can contact me and request access to the original file in Adobe Illustrator.
+
 
 
 Preview :
